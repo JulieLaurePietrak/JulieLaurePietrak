@@ -20,4 +20,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about Deadlock or crocheting
 - 📫 How to reach me: pietrajl@dukes.jmu.edu
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I burp suprisingly loudly
+- ⚡ Fun fact: I burp suprisingly loud
