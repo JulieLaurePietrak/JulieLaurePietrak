@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🔭 I’m currently working on getting my degree!
+- 🌱 I’m currently learning web development and compilers
+- 💬 Ask me about Deadlock or crocheting
+- 📫 How to reach me: pietrajl@dukes.jmu.edu
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I burp suprisingly loudly
